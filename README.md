@@ -9,7 +9,7 @@ Why is this here? Because you could say it's important.
 
 
 I sit in the danganronpa area, if we are not already close please try not to interact with me much since I am iffy with half of that area, even if you aren't involved in anything please just leave me be, even if you are friends with my partner, just be careful. Thank you.      
-<img src="https://files.catbox.moe/j7o4j8.gif" alt="63"/><img src="https://files.catbox.moe/j7o4j8.gif" alt="63"/>
+<img src="https://files.catbox.moe/j7o4j8.gif" alt="63"/>
 
 ``Robert Daly FICTIVE not FICTIONKIN. You can call me Capt. Daly, Captain, or just Daly.``
 - They/Them/Any pronouns that arent "She" or "Neo/Xenos".
