@@ -3,7 +3,7 @@ Why is this here? Because you could say it's important.
 
 <img src="https://i.pinimg.com/736x/0f/0d/dc/0f0ddccbf0a77e7b948aaab03d9f21a7.jpg" alt="This may contain: a woman sitting in front of a control room filled with lots of tv screens and monitors"/>
 
-``I am not one for Do Not Interact lists since they are pointless but due to some recent occurances I will be making one. PLEASE READ BELOW``
+# Hi um. dni list below but if you see me on ponytown with my partner please dont talk to me lol. I don't want to speak with you
 
 <img width="200" height="200" alt="image" src="https://github.com/user-attachments/assets/e4ca21ee-a3bd-4fa1-920a-3566ac4c3fb5" />
 
