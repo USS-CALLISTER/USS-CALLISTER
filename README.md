@@ -1,5 +1,7 @@
 # __Welcome-Aboard-The-USS-Callister.__
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+
 <img src="https://i.pinimg.com/736x/0f/0d/dc/0f0ddccbf0a77e7b948aaab03d9f21a7.jpg" alt="This may contain: a woman sitting in front of a control room filled with lots of tv screens and monitors"/>
 
 # https://uss-callister.straw.page for more information. sign my atabook!
@@ -21,7 +23,6 @@ I sit in the danganronpa area, if we are not already close please try not to int
 
 _typically iwc or w2i on ponytown. bpd , schizo , ADD , Autism_
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
 ``TCC (True Crime Community), Profic, Darkshippers, Proshippers, Pedos, Racists, Trans/Homophobes, Zionists and Xenophobes, Endogenic systems (losers), Mental illness fakers, anti-selfshippers, anti-comshippers (DARKSHIP AND COMSHIP ARE NOT THE SAME. do research.), If you're a moron in general. Know your place and don't come near me and jump already you total loser``    
 # Stamp & Blinkie dump
