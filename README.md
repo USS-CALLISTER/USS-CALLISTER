@@ -1,5 +1,4 @@
 # __Welcome-Aboard-The-USS-Callister.__
-Why is this here? Because you could say it's important.
 
 <img src="https://i.pinimg.com/736x/0f/0d/dc/0f0ddccbf0a77e7b948aaab03d9f21a7.jpg" alt="This may contain: a woman sitting in front of a control room filled with lots of tv screens and monitors"/>
 
@@ -20,7 +19,7 @@ I sit in the danganronpa area, if we are not already close please try not to int
 
 **I usually sit with my partner and would not like to be bothered all that much, talk to them as much as you want**
 
-
+_typically iwc or w2i on ponytown. bpd , schizo , ADD , Autism_
 
 
 ``TCC (True Crime Community), Profic, Darkshippers, Proshippers, Pedos, Racists, Trans/Homophobes, Zionists and Xenophobes, Endogenic systems (losers), Mental illness fakers, anti-selfshippers, anti-comshippers (DARKSHIP AND COMSHIP ARE NOT THE SAME. do research.), If you're a moron in general. Know your place and don't come near me and jump already you total loser``    
