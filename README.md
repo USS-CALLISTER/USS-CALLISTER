@@ -2,6 +2,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+![](https://komarev.com/ghpvc/?username=USS-CALLISTER&color=red)
+
 <img src="https://i.pinimg.com/736x/0f/0d/dc/0f0ddccbf0a77e7b948aaab03d9f21a7.jpg" alt="This may contain: a woman sitting in front of a control room filled with lots of tv screens and monitors"/>
 
 # https://uss-callister.straw.page for more information. sign my atabook!
