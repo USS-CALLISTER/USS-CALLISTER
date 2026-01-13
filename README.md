@@ -2,7 +2,8 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=shibashimu&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-![](https://komarev.com/ghpvc/?username=USS-CALLISTER&color=red)
+![](https://komarev.com/ghpvc/?username=USS-CALLISTER&color=yellow) ![tumblr_118fd43958aca7793aece001e36ea35f_45dcf22e_75](https://github.com/user-attachments/assets/3b279705-ec6b-4ad4-bf71-32587cc519c8) <img alt="GitHub followers" src="https://img.shields.io/github/followers/USS-CALLISTER?style=flat&label=FRIENDS;&labelColor=yellow&color=gold">
+
 
 <img src="https://i.pinimg.com/736x/0f/0d/dc/0f0ddccbf0a77e7b948aaab03d9f21a7.jpg" alt="This may contain: a woman sitting in front of a control room filled with lots of tv screens and monitors"/>
 
